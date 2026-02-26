@@ -1,1 +1,1 @@
-![](https://media1.tenor.com/m/m7QzaIhwraYAAAAd/alencar.gif)
+![](https://media1.tenor.com/m/uxaUT1al39IAAAAd/alencar.gif)
